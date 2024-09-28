@@ -38,8 +38,6 @@ Reminders:
 
 # CS688 Assignment3 代写
 
-# Semester 2, 2024
-
 # 程序代做代写辅导
 
 # 专业辅导，已辅导上千名留学生，帮助其获得高分
